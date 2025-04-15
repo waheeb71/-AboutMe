@@ -4,7 +4,7 @@
 
 🌍 From Taiz, Yemen  
 📞 +967 712266013  
-🔗 [LinkedIn](https://linkedin.com/in/yourprofile) | 
+🔗 [LinkedIn](https://www.linkedin.com/in/waheeb71) | 
 
 ---
 
